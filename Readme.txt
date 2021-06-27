@@ -34,7 +34,7 @@ Note: This hasen't been completed! and never will be, I will be adding new featu
 
 =============================================================================================================================================================
 
-For Support, Contact : SP1D3Y  {Can't provide u my support for now,,But soon.... :)    }
+For Support, Contact : S-P-1-D-3-Y  here is my github link: https://github.com/S-P-1-D-3-Y
 Thanks For Downloading and using my program,,  
 
 =============================================================================================================================================================
